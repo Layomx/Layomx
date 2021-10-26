@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Elvis Adames A.K.A Layomx
+- 👀 I’m interested in technology, programming and machine learning
+- 🌱 I’m currently learning Technology and Computers
